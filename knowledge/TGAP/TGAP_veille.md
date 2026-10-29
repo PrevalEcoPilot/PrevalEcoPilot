@@ -1,0 +1,1 @@
+Contenu mis à jour pour Taux_TGAP_2026_Installation_Stockage
